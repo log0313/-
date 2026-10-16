@@ -7,7 +7,7 @@
 셰익스피어와 비틀스, 해리 포터의 고향이자 고전적인 고딕 건축물과 아름다운 자연 풍경이 공존하는 영국으로 여러분을 초대합니다.
 
 <img src="Harry_Potter_Studio.webp" alt="빅벤" height="540" />
-> 📷 이미지 출처: [클룩(Klook)](https://www.klook.com/ko/blog/harry-potter-warner-bros-studio-tour-tokyo-guide/)
+> 📷 이미지 출처: [클룩(Klook)](https://www.klook.com/ko/blog/harry-potter-warner-bros-studio-tour-tokyo-guide/) 이미지는 도쿄 스튜디오 사진입니다.
 
 ### 🎡 런던의 풍경을 한눈에, 런던 아이 (The London Eye)
 템스강 변에 위치한 대형 관람차로, 현대 런던을 상징하는 대표적인 랜드마크입니다. 캡슐에 탑승해 높이 오르면 빅벤과 국회의사당은 물론 런던 시내 전체를 360도 파노라마 뷰로 한눈에 담을 수 있습니다. 특히 해 질 녘 노을과 함께 펼쳐지는 런던의 야경은 매혹적인 분위기를 선사합니다.
