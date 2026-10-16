@@ -6,7 +6,7 @@
 
 셰익스피어와 비틀스, 해리 포터의 고향이자 고전적인 고딕 건축물과 아름다운 자연 풍경이 공존하는 영국으로 여러분을 초대합니다.
 
-<img src="Harry_Potter_Studio.webp" alt="빅벤" height="540" />
+<img src="Harry_Potter_Studio.jpg" alt="해리포터 스튜디오" height="540" />
 > 📷 이미지 출처: [클룩(Klook)](https://www.klook.com/ko/blog/harry-potter-warner-bros-studio-tour-tokyo-guide/) 이미지는 도쿄 스튜디오 사진입니다.
 
 ### 🎡 런던의 풍경을 한눈에, 런던 아이 (The London Eye)
